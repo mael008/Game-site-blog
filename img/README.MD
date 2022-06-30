@@ -1,0 +1,1 @@
+Nessa pasta serão adicionado todos as imagens aberto ao publico!
